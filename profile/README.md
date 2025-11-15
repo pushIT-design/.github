@@ -13,6 +13,6 @@
 
 https://pushit.design
 
-https://instagram/pushit.design
+https://instagram.com/pushit.design
 
-https://linkedin/company/pushit-design
+https://linkedin.com/company/pushit-design
